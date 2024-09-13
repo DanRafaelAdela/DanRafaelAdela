@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on SparkSoft Solutions Inc.
+🔭 I’m currently working in SparkSoft Solutions Inc.
 
 
 ## 🌐 Socials:
